@@ -1,0 +1,1 @@
+# yusril-ikhza-mahendra.github.io
